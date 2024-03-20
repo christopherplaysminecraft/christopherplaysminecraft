@@ -1,1 +1,1 @@
-You are looking at a screen right now, or are you?
+You are currently reading this sentence, or are you..
